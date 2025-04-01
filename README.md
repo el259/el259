@@ -1,1 +1,1 @@
-Hello my name is Enrique, I am computational lingustics student. I like most thing language and computer related 
+1[Comic Sans, Scary](el259/images/Nothing-New-Yet-3-31-2025.png)
