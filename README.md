@@ -1,2 +1,2 @@
-![Nothing new](images/smn.png)
+![Nothing new](images/nny.png)
 
